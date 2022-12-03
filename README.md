@@ -30,3 +30,9 @@ Roblox Account Generator (Verified)
 **Payment Methods: Crypto Currency**
 
 _**DM xnon#4639 on [Discord](https://discord.com/channels/@me) to purchase**_
+
+## INFO
+
+**BANDZZZ** is a big project I've been working on for **8-9 months** by myself. If you would like to donate, please contact me on [Discord](https://discord.com/channels/@me) **xnon#4639**.
+
+_**I can only take donations & payments through crypto**_
