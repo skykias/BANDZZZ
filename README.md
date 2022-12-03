@@ -22,3 +22,11 @@ Fake Receipt Maker
 Youtube Viewbot And Likebot
 
 Roblox Account Generator (Verified)
+
+## Pricing
+
+**Price: $20**
+
+**Payment Methods: Crypto Currency**
+
+_**DM xnon#4639 on [Discord](https://discord.com/channels/@me) to purchase**_
